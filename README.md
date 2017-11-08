@@ -8,7 +8,7 @@ This is the future!
 
 Så det är nu dax att jobba lite gubbar :)
 
-
+##GEGE!!!!!
  
  more change for the people pleace.
  The world needs games and i need the world... Yes life is hard
