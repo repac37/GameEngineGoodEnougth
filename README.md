@@ -15,9 +15,12 @@ Så det är nu dax att jobba lite gubbar :)
  fqowinbfou21q	
  fniqwop3h10
  
- more change for the people pleace.
- The world needs games and i need the world... Yes life is hard
- But keep on running and you will fall. (:
+  fqowinbfou21q	
+ fniqwop3h10 hfdnoq2uweho
+ fqowinbfou21q	
+ fniqwop3h10 hfdnoq2uweho
+ fqowinbfou21q	
+
  
  hfdnoq2uweho
  fqowinbfou21q	
@@ -28,11 +31,11 @@ Så det är nu dax att jobba lite gubbar :)
  fniqwop3h10 hfdnoq2uweho
  fqowinbfou21q	
  fniqwop3h10 hfdnoq2uweho
- fqowinbfou21q	
- fniqwop3h10 hfdnoq2uweho
- fqowinbfou21q	
- fniqwop3h10 hfdnoq2uweho
- fqowinbfou21q	
+
+  more change for the people pleace.
+ The world needs games and i need the world... Yes life is hard
+ But keep on running and you will fall. (:
+  
  fniqwop3h10 hfdnoq2uweho
  fqowinbfou21q	
  fniqwop3h10 hfdnoq2uweho
