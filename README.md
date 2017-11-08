@@ -6,4 +6,4 @@ This is the future!
 
 ## NO idea where we going engine 
 
-Detta är vårt arbete
+Detta är vårt arbete nu.
