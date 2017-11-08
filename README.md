@@ -6,4 +6,6 @@ This is the future!
 
 ## NO idea where we going engine 
 
-Detta är vårt arbete nu.
+Så det är nu dax att jobba lite gubbar :)
+
+## GEGE local shit $$£££
